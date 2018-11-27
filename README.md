@@ -1,6 +1,6 @@
 # Sitecore Community (3)
 
-Meetup was Thursday, May 11, 2017 at Thursday, May 11, 2017, and was sponsered by Nemetos.
+Meetup was Thursday, May 11, 2017 at Thursday, May 11, 2017 at Hotel UniversT, and was sponsered by Nemetos.
 
 Here's the schedule of the evening:
 
